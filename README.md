@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mathieu
-- 👀 I’m interested in web 
-- 🌱 I’m currently learning at Studi online school.
+- 👀 I’m interested in web and mobile. 
+- 🌱 I’m currently working at my own business MG Production.
 
 
 
